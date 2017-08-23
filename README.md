@@ -1,1 +1,3 @@
-# devops-aula02
+Sasha Gray
+Mia Khalifa
+Bruna Surfistinha
